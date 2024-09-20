@@ -1,2 +1,3 @@
-# Daddy
-this is something that i made =)
+# I like to learn and create
+
+Trying to do Stuff that seem fun!🎅
